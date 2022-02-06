@@ -1,5 +1,7 @@
 # The Winter Walk
 
+** This is essentially a written version of the audio narrative **
+
 The college student is a generally stressed kid. He usually is overloaded with work, and never seems to have free time. In the event that he does manage to find some free time, he enjoys going on walks. He loves walking in the outdoors, rain or shine, hot or cold, night or day. He loves walking because it relieves his stress. Walking is therapeutic to him because it allows him to become one with nature and to not have a care in the world but admiring the beautiful earth. At college, the student's go-to walking location is a nearby park with a large soccer field, some playgrounds, and a long trail. Whenever he has no schoolwork, that is where is goes.
 
 It is now a cold and early Saturday morning in December and the student has just woken up. Last night, he just finished a big programming assignment. He also finished all the other homework he had from his other classes before he went to bad last night, sacrificing a night out with friends. However, that does not matter as he now has as much free time as he desires. So, the first thing he decides to do with that free time is go on a walk.
